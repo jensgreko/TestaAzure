@@ -1,3 +1,1 @@
-# Snälla FUNKA
-# HEJ HEJ 
-# HEJ 
+# YOLO
