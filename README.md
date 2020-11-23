@@ -1,2 +1,1 @@
-# YOLO
-# YOlO 2 
+# Fuck Trump
