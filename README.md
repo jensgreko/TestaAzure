@@ -1,2 +1,1 @@
-# Fuck Trump
-# HEj 
+# Hej  
